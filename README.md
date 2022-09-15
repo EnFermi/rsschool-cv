@@ -1,2 +1,2 @@
 # rsschool-cv
-https://EnFermi.github.io/rsschool-cv/cv
+https://EnFermi.github.io/rsschool-cv/
