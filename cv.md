@@ -1,7 +1,7 @@
 Anatoli Nizelnik
 Wroclaw, Poland
 Email: anatoli.n.by@gmail.com
-Discord: Anatoli Ni (@EnFermi)
+Discord: anatoli ni (@EnFermi)
 
 
 ![Rene-Magritte-1](https://user-images.githubusercontent.com/111630424/190477835-caf0bdd2-df02-43c1-a54c-d3260a9dfe27.jpg)
